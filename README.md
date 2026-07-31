@@ -1,3 +1,5 @@
-　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=+++𓂃𖡼.*ﾟ‎ཐི༑ཋྀ++⋆+++++&color=f3ac38)
+　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=++++໒꒰ྀི๑ᵔ++ᵕ++ᵔ๑꒱ྀིა++++&color=feb0cb)
 
- <p align="center"> <img width="300" height="300" alt="4271" src="https://github.com/user-attachments/assets/8908df44-c4b4-4fb2-a1b9-690f35f5a9e8" />
+ <p align="center"> <img width="240" height="240" alt="4288" src="https://github.com/user-attachments/assets/b5934c03-183e-459e-a9a6-45cd8d8a92e4" />
+
+
