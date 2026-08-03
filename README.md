@@ -8,7 +8,7 @@
 
 ### <p align="center"> $\color{#D583EC}\huge{\textbf{About Me! ꈍ◡ꈍ}}$ 
 
-<p align="center"> $\color{#D583EC}\large{\textsf{Call me Mochi, Pill, or Colour! I am a female, and I go by she/her pronouns. I am straight.}}$
+<p align="center"> $\color{#D583EC}\large{\textsf{Call me Mochi, Pill, or Colour!.}}$
 
 <p align="center"> $\color{#D583EC}\large{\textsf{I am quite sensitive, so please interact with care/caution! I will list some important boundaries that I}}$
 
