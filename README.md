@@ -2,11 +2,11 @@
 
  <p align="center"> <img width="2048" height="2048" alt="4397" src="https://github.com/user-attachments/assets/46f4a02e-9ddc-41e6-8c91-2934648aa794" />
 
-<p align="center"> $\color{#EC81F0}\large{\textsf{Art is by me <3}}$
+<p align="center"> $\color{#efa7d1}\large{\textsf{Art is by me <3}}$
 
 # 
 
-### <p align="center"> $\color{#c299ed}\huge{\textbf{About Me! ꈍ◡ꈍ}}$ 
+### <p align="center"> $\color{#D583EC}\huge{\textbf{About Me! ꈍ◡ꈍ}}$ 
 
 <p align="center"> $\color{#D583EC}\large{\textsf{Call me Mochi, Pill, or Colour! I am a female, and I go by she/her pronouns. I am straight.}}$
 
@@ -19,12 +19,18 @@
 
 <p align="center"> $\color{#D583EC}\large{\textsf{I have mood swings, I do apologize if I make you uncomfortable/sad.}}$
 
-<p align="center"> $\color{#D583EC}\large{\textsf{I have a romantic attraction to graduated cylinders (I am not joking.) , Atreyos, Red/Black from Among Us, }}$
+<p align="center"> $\color{#D583EC}\large{\textsf{I have a romantic attraction to graduated cylinders (I am not joking.) , Atreyos, Red/Black from Among}}$
+
+<p align="center"> $\color{#D583EC}\large{\textsf{Us, MICROWAVE MICROWAVE MICROWAVEICROWAVE MICROWAVE ILY}}$
 
 #
 
 
 ### <p align="center"> $\color{#EC81F0}\large{\textsf{Boundaries (WIP)}}$
 
-<p align="center"> $\color{#EC81F0}\large{\textsf{I do not feel comfortable when people steal/take inspiration off my jokes and insults.}}$
+<p align="center"> $\color{#EC81F0}\large{\textsf{I do not feel comfortable when people steal/take inspiration off my jokes and insults (EM take notes).}}$
 
+<p align="center"> $\color{#EC81F0}\large{\textsf{I do not like it when people none other that Microwave attempts to flirt with me and act like weirdos}}$
+
+<p align="center"> $\color{#EC81F0}\large{\textsf{I dont like it when people copy my ocs. (EM take notes).}}$
+<p align="center"> $\color{#EC81F0}\large{\textsf{EM = ex friend who told me to die + refused to respect my boundaries. I know them irl btw}}$
