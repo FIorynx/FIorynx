@@ -1,5 +1,5 @@
-　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=++++໒꒰ྀི๑ᵔ++ᵕ++ᵔ๑꒱ྀིა++++&color=feb0cb)
+　<p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=Magical+KitkatsS&color=9ceae0)
 
- <p align="center"> <img width="240" height="240" alt="4288" src="https://github.com/user-attachments/assets/b5934c03-183e-459e-a9a6-45cd8d8a92e4" />
+ <p align="center"> <img width="2048" height="2048" alt="4397" src="https://github.com/user-attachments/assets/46f4a02e-9ddc-41e6-8c91-2934648aa794" />
 
-
+<p align="center"> $\color{#EC81F0}\large{\textsf{Art is by me <3}}$
