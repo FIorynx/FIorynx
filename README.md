@@ -35,3 +35,8 @@
 
 <p align="center"> $\color{#EC81F0}\large{\textsf{I dont like it when people copy my ocs. (EM take notes).}}$
 <p align="center"> $\color{#EC81F0}\large{\textsf{EM = ex friend who told me to die + refused to respect my boundaries. I know them irl btw}}$
+
+#
+
+
+### <p align="center"> quickmentions don't work TwT
