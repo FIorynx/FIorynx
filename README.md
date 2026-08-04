@@ -1,6 +1,7 @@
 ## <p align="center">![](https://komarev.com/ghpvc/?username=2ft-high&label=Magical+KitkatsS&color=9ceae0)
 
- <p align="center"> <img width="2048" height="2048" alt="4399" src="https://github.com/user-attachments/assets/518e2c74-eac4-4731-a62d-c4f68418e054" />
+ <p align="center"> <img width="2048" height="2048" alt="4401" src="https://github.com/user-attachments/assets/bf563d80-12b5-4f35-b898-7f924a94e7c8" />
+
 
 <p align="center"> $\color{#efa7d1}\large{\textsf{Art is by me <3}}$
 
